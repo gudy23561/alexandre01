@@ -9,5 +9,4 @@ Estudo alura
 
 
 
-![](https://media1.tenor.com/m/lgfiKV0zVAUAAAAd/daitroksgiphy-roblox-nugget.gif)
-
+![](https://media1.tenor.com/m/4fH8zSIuSvcAAAAd/cristiano-ronaldo-soccer.gif)
